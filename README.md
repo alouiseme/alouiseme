@@ -5,10 +5,10 @@
 
 Here are some ideas to get you started:
 -->
-- 🌿 Let's talk plants on **[Discord]()**
-- 💌 Or we can exchange playlists on **[Apple Music](https://music.apple.com/profile/plantparenthood)**
-- 🐚 Tweet me at alouiseme
+- 🌿 Let's talk plants on **[Discord](https://discord.gg/jJaXSKbQnj)**
+- 🔉Or we can exchange playlists on **[Apple Music](https://music.apple.com/profile/plantparenthood)**
+- 🐚 Tweet me **[@alouiseme](https://twitter.com/aloulemon)**
 - 
-- 💞 My pronouns are: they/them
+- 💞 & When I'm not around, call me by my pronouns **[they/them](https://www.mypronouns.org/they-them)**
 
 
