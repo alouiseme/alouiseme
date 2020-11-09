@@ -5,10 +5,11 @@
 
 Here are some ideas to get you started:
 -->
-- 🌿 Let's talk plants on **[Discord](https://discord.gg/jJaXSKbQnj)**
-- 🔉Or we can exchange playlists on **[Apple Music](https://music.apple.com/profile/plantparenthood)**
-- 🐚 Tweet me **[@alouiseme](https://twitter.com/aloulemon)**
-- 
-- 💞 & When I'm not around, call me by my pronouns **[they/them](https://www.mypronouns.org/they-them)**
+- 🌿 We can talk plants on **[Discord](https://discord.gg/jJaXSKbQnj)**
+- 🔉 Exchange playlists on **[Apple Music](https://music.apple.com/profile/plantparenthood)**
+- 🐚 Engage in a **[Twitter](https://twitter.com/aloulemon)** war
+- 🔗 or connect on **[LinkedIn](https://www.linkedin.com/in/medinaal/)**
+
+💞 & When I'm not around, please call me by my pronouns **[they/them](https://www.mypronouns.org/they-them)**
 
 
