@@ -7,6 +7,6 @@ Here are some ideas to get you started:
  
  🔉 Let's exchange playlists on **[Apple Music](https://music.apple.com/profile/plantparenthood)**
  
- 🐚 Engage in a **[Twitter](https://twitter.com/aloulemon)** war
+ 🐚 Or engage in a **[Twitter](https://twitter.com/aloulemon)** war
 
 
